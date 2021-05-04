@@ -93,6 +93,3 @@ Love to eat fresh fruit and all kinds of vegetables.
  Don't love to eat beets.
  
 
-
-
-Hocus-pocus!
