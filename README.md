@@ -8,6 +8,7 @@
 
 ### ― Girl from the South Side and former First Lady. Wife, mother, dog lover. Always hugger-in-chief.
 
+---
 
 #### Career and Life Before Becoming First Lady 
 
@@ -26,7 +27,7 @@ Left corporate law to pursue a career in public service
 <small> 1988 </small>
 Joined the Chicago office of the law firm Sidley Austin as a junior associate specializing in marketing and intellectual property.
 
-### Tenure as First Lady 
+#### Tenure as First Lady 
 
 <small>2016</small>
 Accompanied her husband and children to Cuba in a trip that was seen by the administration as having the possibility of positively impacting relations between the country and America.
@@ -63,7 +64,7 @@ Became the third with a post-graduate degree.
 
 ---
 
-### Books
+#### Books
 - Obama, Michelle (2012). American Grown. New York: Crown Publishing Group.
 - Obama, Michelle (2018). Becoming. New York: Crown Publishing Group.
 
