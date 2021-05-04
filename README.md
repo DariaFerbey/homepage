@@ -10,7 +10,7 @@
 
 ---
 
-#### Career and Life Before Becoming First Lady 
+#### *Career and Life Before Becoming First Lady* 
 
 <small>2002</small>
 Began working for the University of Chicago Hospitals, first as executive director for community affairs.
@@ -27,7 +27,7 @@ Held public sector positions in the Chicago city government as an Assistant to t
 <small> 1988 </small>
 Joined the Chicago office of the law firm Sidley Austin as a junior associate specializing in marketing and intellectual property.
 
-#### Tenure as First Lady 
+#### *Tenure as First Lady*
 
 <small>2016</small>
 Accompanied her husband and children to Cuba in a trip that was seen by the administration as having the possibility of positively impacting relations between the country and America.
