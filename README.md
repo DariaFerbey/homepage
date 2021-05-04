@@ -13,16 +13,16 @@
 #### Career and Life Before Becoming First Lady 
 
 <small>2002</small>
-Was named executive director of community relations and external affairs for the University of Chicago Hospitals.
+Began working for the University of Chicago Hospitals, first as executive director for community affairs.
 
 <small>1996</small>
-Proved a disciplined campaign aide by canvassing for signatures and throwing fundraising parties.
+Served as the Associate Dean of Student Services at the University of Chicago, where she developed the University’s Community Service Center.
 
 <small>1993</small>
 Was named executive director for the Chicago branch of Public Allies, a leadership-training program for young adults.
 
 <small>1991</small>
-Left corporate law to pursue a career in public service
+Held public sector positions in the Chicago city government as an Assistant to the Mayor and as Assistant Commissioner of Planning and Development.
 
 <small> 1988 </small>
 Joined the Chicago office of the law firm Sidley Austin as a junior associate specializing in marketing and intellectual property.
@@ -68,7 +68,30 @@ Became the third with a post-graduate degree.
 - Obama, Michelle (2012). American Grown. New York: Crown Publishing Group.
 - Obama, Michelle (2018). Becoming. New York: Crown Publishing Group.
 
+---
 
+#### 5 Lessons From Michelle Obama’s Autobiography ❤️
+
+1. Don’t give up on your dreams
+2. Time is gold
+3. Always be determined
+4. The right clothes give power
+5. Become more
+
+---
+
+#### LIFE LESSON
+
+There is no limit to what we as women can accomplish.
+
+#### LIKES 😃
+
+Love to eat fresh fruit and all kinds of vegetables.
+ 
+ #### DISLIKES 😞  
+ 
+ Don't love to eat beets.
+ 
 
 
 
